@@ -1,1 +1,0 @@
-# Adsense-invalid-click-protector
